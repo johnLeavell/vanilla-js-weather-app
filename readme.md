@@ -1,0 +1,1 @@
+Hello friends, todays adventure is going to consist
